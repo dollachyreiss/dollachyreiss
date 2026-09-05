@@ -30,7 +30,7 @@
      <br>
      <details>
 <summary>𝓡EAD</summary>
-well hello, this is actually so short, so go to my main instead
+well hello, this is actually so short, more info bout fandom in sp!! 
 <br>
 HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT ALL THE FANDOM I JOINED AFTER I JUST LEFT IT FOR 1 MONTH..??? I'm getting more busy that i kinda rarely plays pony town right now..i mainly like. SO HEY, PLEASE PLAY ROBLOX WITH ME!!! MY USER IS @iikasxihaja 🥹🥹.. also i do have a flirty personality so i will most likely flirt with you when we get close, it does not mean that i have feelings for you. SET BOUNDARIES clearly if you do NOT want this. i dont read dnis often ^_^ do i have a kin..? idk bro I'm too lazy to know myself and a character that like me vruh 🤣🤣✌✌ but i have my comfy char!!  BTW MY BIAS IS SOOBIN FROM TXT ✌✌🤣🤣
 </details>
@@ -64,7 +64,7 @@ I love ma friendsgroup  <br>
 <br>
 ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
 ㅤㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/bd8b5f84-5ecd-45a1-b1ce-7f8d40c99564" />ㅤㅤㅤㅤ.ㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/8fddbf37-69e1-4f22-93dd-20dd4eb6bb3e" />ㅤㅤㅤ.ㅤㅤㅤㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b5035cec-0f35-410c-aa8b-cc6bfd938155" />
- ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀  ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀
+ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀
 ㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://rentry.co/SLEEPINGDOLLIE">
   <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/90b5274c-9531-4c0d-a72f-d58565af9768" />
