@@ -1,6 +1,6 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀![image_alt](https://img.shields.io/badge/‹𝟹-FR4GIL3_._𖥔-black) 
+ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀![image_alt](https://img.shields.io/badge/‹𝟹-FR4GIL3_._𖥔-black) 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ㅤ[Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
+ㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ㅤ[Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀
 
 <img width="1279" height="830" alt="Image" src="https://github.com/user-attachments/assets/0f61a175-c2d9-4c25-b721-73f7c50d3571" />
