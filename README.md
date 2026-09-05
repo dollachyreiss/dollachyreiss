@@ -50,7 +50,7 @@ HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT
            <br>
 HONESTLY I'M LAZY TO MOVE IT HERE<br>
 JUST GO TO MY STRAWBERRY PAGE <br>
-ON MY  MAIN ACC AND #1 RENTRY<br>
+AND.. YEP!!<br>
 I love ma friendsgroup <br>
 
  
