@@ -1,6 +1,17 @@
- ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀![image_alt](https://img.shields.io/badge/‹𝟹-FR4GIL3_._𖥔-black) 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀
-ㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ㅤ[Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
+<div align="center">
+
+ <br>
+ 
+ ![image_alt](https://img.shields.io/badge/‹𝟹-FR4GIL3_._𖥔-black) 
+
+
+ </div>
+<br>
+<html>
+ <div aligh="center">
+  
+  [Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/)
+  </div>⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀
 
 <img width="1279" height="830" alt="Image" src="https://github.com/user-attachments/assets/0f61a175-c2d9-4c25-b721-73f7c50d3571" />
@@ -62,11 +73,15 @@ I love ma friendsgroup  <br>
   </tr>
 </table>
 <br>
-⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
-ㅤㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/bd8b5f84-5ecd-45a1-b1ce-7f8d40c99564" />ㅤㅤㅤㅤ.ㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/8fddbf37-69e1-4f22-93dd-20dd4eb6bb3e" />ㅤㅤㅤ.ㅤㅤㅤㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b5035cec-0f35-410c-aa8b-cc6bfd938155" />
+
+<div align="center">
+ 
+ <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/bd8b5f84-5ecd-45a1-b1ce-7f8d40c99564" />ㅤㅤㅤㅤ.ㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/8fddbf37-69e1-4f22-93dd-20dd4eb6bb3e" />ㅤㅤㅤ.ㅤㅤㅤㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b5035cec-0f35-410c-aa8b-cc6bfd938155" />
+ </div>
  ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀
-ㅤㅤㅤㅤㅤㅤㅤ
-<a href="https://rentry.co/SLEEPINGDOLLIE">
+ㅤㅤㅤㅤㅤㅤ
+<div align="center">
+ <a href="https://rentry.co/SLEEPINGDOLLIE">
   <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/90b5274c-9531-4c0d-a72f-d58565af9768" />
 </a>
 ㅤㅤㅤㅤㅤㅤㅤ
@@ -76,5 +91,6 @@ I love ma friendsgroup  <br>
 ㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://rentry.co/REILEIZUYA">
   <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/f2717219-00df-4e6e-bf9e-241c784fdcb7" />
-</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+</a>
+</div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀
