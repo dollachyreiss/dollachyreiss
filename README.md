@@ -48,13 +48,13 @@
 
 <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/90ea90ed-e3ad-4005-bc05-6e0d78df9118" /> ‎ ${\textsf{\color{#B5C3D7} 𝓗YORA}}$‎ ‎ ${\textsf{\color{#4F6ABA} 𝓘NFP}}$ㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/bbd38577-6e86-44ae-89f8-34e4a05f4874" />⠀⠀ ⠀⠀ 
      <br>
-     ‎ indonesian . takenㅤ 𝓑isex̲u̲a̲l̲ ‎ ‎ 
+     ‎ indonesian⠀ ⠀  . takenㅤ⠀ ⠀  𝓑isex̲u̲a̲l̲ ‎ ‎ 
      <br>
      <details>
 <summary>𝓡EAD</summary>
 well hello, this is actually so short, more info bout fandom in sp!! 
 <br>
-HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT ALL THE FANDOM I JOINED AFTER I JUST LEFT IT FOR 1 MONTH..??? I'm getting more busy that i kinda rarely plays pony town right now..i mainly like. SO HEY, PLEASE PLAY ROBLOX WITH ME!!! MY USER IS @iikasxihaja 🥹🥹.. also i do have a flirty personality so i will most likely flirt with you when we get close, it does not mean that i have feelings for you. SET BOUNDARIES clearly if you do NOT want this. i dont read dnis often ^_^ do i have a kin..? idk bro I'm too lazy to know myself and a character that like me vruh 🤣🤣✌✌ but i have my comfy char!!  BTW MY BIAS IS SOOBIN FROM TXT ✌✌🤣🤣
+HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT ALL THE FANDOM I JOINED AFTER I JUST LEFT IT FOR 1 MONTH..???⠀ ⠀  I'm getting more busy that i kinda rarely plays pony town right now..i mainly like. SO HEY, PLEASE PLAY ROBLOX WITH ME!!! MY USER IS @iikasxihaja 🥹🥹..⠀ ⠀  also i do have a flirty personality so i will most likely flirt with you when we get close, it does not mean that i have feelings for you. SET BOUNDARIES clearly if you do NOT want this. ⠀ ⠀ i dont read dnis often ^_^ ⠀ ⠀ do i have a kin..? ⠀ ⠀ idk bro I'm too lazy to know myself and a character that like me vruh 🤣🤣✌✌ but i have my comfy char!!  BTW MY BIAS IS SOOBIN FROM TXT ✌✌🤣🤣
 </details>
     </td>
   </tr>
@@ -73,9 +73,9 @@ HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT
       <details>
 <summary> DO 𝓝OT 𝓘NT𝐄RA𝐂T <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/76aeee60-52de-4576-9a36-ef1b1e320544" /> </summary>
            <br>
-HONESTLY I'M LAZY TO MOVE IT HERE<br>
-JUST GO TO MY STRAWBERRY PAGE <br>
-AND.. YEP!!<br>
+HONESTLY⠀ ⠀  I'M LAZY⠀ ⠀  TO MOVE IT HERE<br>
+JUST GO⠀ ⠀  TO MY STRAWBERRY ⠀ ⠀ PAGE <br>
+AND.. ⠀ ⠀ YEP!!<br>
 I love ma friendsgroup  <br>
 
  
