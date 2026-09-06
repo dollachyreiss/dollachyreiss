@@ -71,7 +71,7 @@ HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT
   <tr>
     <td>
       <details>
-<summary> DO 𝓝OT 𝓘NT𝐄RA𝐂T <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/76aeee60-52de-4576-9a36-ef1b1e320544" /> </summary>
+<summary> DO ⠀ ⠀ 𝓝OT⠀ ⠀  𝓘NT𝐄RA𝐂T⠀ ⠀ <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/76aeee60-52de-4576-9a36-ef1b1e320544" /> </summary>
            <br>
 HONESTLY⠀ ⠀  I'M LAZY⠀ ⠀  TO MOVE IT HERE<br>
 JUST GO⠀ ⠀  TO MY STRAWBERRY ⠀ ⠀ PAGE <br>
