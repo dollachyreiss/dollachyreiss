@@ -8,11 +8,14 @@
  </div>
 <br>
 <html>
- <div aligh="center">
+ <div align="center">
   
   [Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/)
   </div>⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀
+<div align="center">
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Varela+Round&size=15&duration=3000&pause=500&color=C6D3F4&center=true&width=435&lines=.+.+.+.+.+.+.+.+.+.+;Sleep%E3%85%A4+on;Sweet+%E3%85%A4little+%E3%85%A4child+%E3%85%A4day%E3%85%A4+is%E3%85%A4+young..+;Water%E3%85%A4is%E3%85%A4+freezing+%E3%85%A4%28don't+%E3%85%A4wake%29+;.+.+.+.+.+;Night%E3%85%A4+is%E3%85%A4+so%E3%85%A4+deep+%E3%85%A4and+%E3%85%A4slow..+;Close%E3%85%A4+your%E3%85%A4+eyes%E3%85%A4+dream%E3%85%A4+on;Dear+%E3%85%A4little+%E3%85%A4child%E3%85%A4+in%E3%85%A4+the+%E3%85%A4sky...+;Stars%E3%85%A4+are%E3%85%A4+still%E3%85%A4+fading+%E3%85%A4away;.+.+.+.+.+;Dove...+;You're%E3%85%A4+a+%E3%85%A4dove..+;Into+%E3%85%A4close...+;.+.+.+.+.+.+.+.+.+" alt="Typing SVG" /></a> 
+
 
 <img width="1279" height="830" alt="Image" src="https://github.com/user-attachments/assets/0f61a175-c2d9-4c25-b721-73f7c50d3571" />
 <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b4aaa91b-60c1-4fdb-919a-f4a7c1665381" /> ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ₒᵣ　࣪　⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ 　_ 　❜ 　( 　 ࣪࣪　⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀　 ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
