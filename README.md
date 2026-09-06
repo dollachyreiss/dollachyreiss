@@ -18,10 +18,10 @@
 
 
 <img width="1279" height="830" alt="Image" src="https://github.com/user-attachments/assets/0f61a175-c2d9-4c25-b721-73f7c50d3571" />
-<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b4aaa91b-60c1-4fdb-919a-f4a7c1665381" /> ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ₒᵣ　࣪　⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ 　_ 　❜ 　( 　 ࣪࣪　⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀　 ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
+<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b4aaa91b-60c1-4fdb-919a-f4a7c1665381" /> ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 　࣪　⠀- , ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ 　_ 　❜ 　( 　 ࣪࣪　⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀　 ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
 <div aligt="center"> 
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓂃⠀⠀ ‎ ๑ㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/66ea53fe-4925-4f1e-b888-1b1608ddeb5c" />   ‎    ‎   𝓛𝙚𝙞zuყυㅤㅤㅤ︵ㅤㅤ 𝙊𝙍ㅤㅤㅤㅤ     - ,,  𝗛𝘠𝔒RAㅤ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ㅤ.ㅤㅤ⪩⪨  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤㅤㅤㅤઇ 　　 ݂ ֹ　ㅤㅤㅤ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/12500261-d92a-48b1-b078-79bd121741ae" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓂃⠀⠀ ‎ ๑ㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/66ea53fe-4925-4f1e-b888-1b1608ddeb5c" />   ‎    ‎   𝓛𝙚𝙞zuყυㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤㅤㅤ     - ,,  𝗛𝘠𝔒RAㅤ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ㅤ.ㅤㅤ⪩⪨  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤㅤㅤㅤઇ 　　 ݂ ֹ　ㅤㅤㅤ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/12500261-d92a-48b1-b078-79bd121741ae" />
  
  </div>⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤ
  <div align="enter">
