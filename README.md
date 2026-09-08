@@ -20,7 +20,7 @@ PC MODE RECOMMENDED!!!!!!!
 
 
 <div align="center">
- <img width="559" height="330" alt="Image" src="https://github.com/user-attachments/assets/0f61a175-c2d9-4c25-b721-73f7c50d3571" />
+ ⠀⠀ ⠀<img width="540" height="330" alt="Image" src="https://github.com/user-attachments/assets/0f61a175-c2d9-4c25-b721-73f7c50d3571" />
 </div>
 
 <div align="center">
