@@ -51,7 +51,7 @@
 <table>
   <tr>
     <td rowspan="3" align="center">
-      <img width="771" height="800" alt="Image" src="https://github.com/user-attachments/assets/2aa693d0-1352-4054-b0e1-c778c855ec4b" />
+      <img width="270" height="280" alt="Image" src="https://github.com/user-attachments/assets/2aa693d0-1352-4054-b0e1-c778c855ec4b" />
 
 
 
@@ -74,7 +74,7 @@ HI, I'm a multifandom and a multishipper! IM into a lot of fandoms, BUT I FORGOT
 <tr>
   <td align="center" valign="middle">
     <br>
-    <img width="771" height="800" alt="Image" src="https://github.com/user-attachments/assets/c26f9780-112e-43ce-8d40-329cfc53913e" />
+    <img width="265" height="270" alt="Image" src="https://github.com/user-attachments/assets/c26f9780-112e-43ce-8d40-329cfc53913e" />
 
     
   </td>
