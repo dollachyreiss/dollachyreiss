@@ -1,3 +1,5 @@
+PC MODE RECOMMENDED!!!!!!!
+
 <div align="center">
 
  <br>
