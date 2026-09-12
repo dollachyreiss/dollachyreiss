@@ -14,7 +14,12 @@
   
   [Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤ[@PUPPYC4LEBS](https://github.com/PUPPYC4LEBS)
   </div>⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
+<div align="center">
+ ⠀ ⠀ ⠀⠀<img width="1279" height="389" alt="Image" src="https://github.com/user-attachments/assets/32105f19-28bc-4c14-b947-4216ed64412d" />
+</div>
+ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
 <div align="center">
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Varela+Round&size=15&duration=3000&pause=500&color=C6D3F4&center=true&width=435&lines=.+.+.+.+.+.+.+.+.+.+;Sleep%E3%85%A4+on;Sweet+%E3%85%A4little+%E3%85%A4child+%E3%85%A4day%E3%85%A4+is%E3%85%A4+young..+;Water%E3%85%A4is%E3%85%A4+freezing+%E3%85%A4%28don't+%E3%85%A4wake%29+;.+.+.+.+.+;Night%E3%85%A4+is%E3%85%A4+so%E3%85%A4+deep+%E3%85%A4and+%E3%85%A4slow..+;Close%E3%85%A4+your%E3%85%A4+eyes%E3%85%A4+dream%E3%85%A4+on;Dear+%E3%85%A4little+%E3%85%A4child%E3%85%A4+in%E3%85%A4+the+%E3%85%A4sky...+;Stars%E3%85%A4+are%E3%85%A4+still%E3%85%A4+fading+%E3%85%A4away;.+.+.+.+.+;Dove...+;You're%E3%85%A4+a+%E3%85%A4dove..+;Into+%E3%85%A4close...+;.+.+.+.+.+.+.+.+.+" alt="Typing SVG" /></a> 
 
@@ -116,4 +121,7 @@ I love ma friendsgroup  <br>
   <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/f2717219-00df-4e6e-bf9e-241c784fdcb7" />
 </a>
 </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀
+ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀
+ <div align="center">
+ <img width="1279" height="389" alt="Image" src="https://github.com/user-attachments/assets/f1dab5ac-ea0c-4925-b632-bcfd7fd178dc" />
+ </div>
