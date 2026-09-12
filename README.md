@@ -33,21 +33,7 @@
  <img width="75" height="20" alt="Image" src="https://github.com/user-attachments/assets/8865a03e-0600-4c48-8eee-e3c927a9e851" />ㅤㅤㅤㅤ[𝓢trawPage](https://c4nibayl1sme.straw.page)ㅤㅤㅤㅤㅤㅤ˖ . 𖥔ㅤㅤㅤㅤㅤㅤㅤ[𝓢hared—SP](https://lesafayuan.straw.page) ㅤㅤㅤㅤ <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/64ff6054-4e67-4cf9-a73e-056b7bd534e4" />
  </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
 
-<div align="center">
 
- <br>
- 
- ![image_alt](https://img.shields.io/badge/‹𝟹-FR4GIL3_._𖥔-black) 
-
-
- </div>
-<br>
-<html>
- <div align="center">
-  
-  [Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤ[@PUPPYC4LEBS](https://github.com/PUPPYC4LEBS)
-  </div>⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
 
 ㅤㅤㅤㅤㅤㅤㅤ ‎ ‎   
 
@@ -97,7 +83,21 @@ JUST GO⠀ ⠀  TO MY STRAWBERRY ⠀ ⠀ PAGE <br>
 AND.. ⠀ ⠀ YEP!!<br>
 I love ma friendsgroup  <br>
 
+ <div align="center">
+
+ <br>
  
+ ![image_alt](https://img.shields.io/badge/‹𝟹-FR4GIL3_._𖥔-black) 
+
+
+ </div>
+<br>
+<html>
+ <div align="center">
+  
+  [Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤ[@PUPPYC4LEBS](https://github.com/PUPPYC4LEBS)
+  </div>⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
 </details>
     </td>
   </tr>
