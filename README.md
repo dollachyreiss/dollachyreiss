@@ -17,7 +17,7 @@
 </div>⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀　 ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
 <div aligt="center"> 
  
-ㅤㅤㅤㅤㅤ 𓂃⠀⠀ ‎ ๑ㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/66ea53fe-4925-4f1e-b888-1b1608ddeb5c" />   ‎ ‎   𝓛𝙚𝙞zuყυㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤㅤㅤ     - ,,  𝗛𝘠𝔒RAㅤ⠀⠀ ⠀⠀ ⠀.ㅤㅤ⪩⪨
+ㅤㅤㅤㅤㅤ 𓂃⠀⠀ ‎ ๑ㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/66ea53fe-4925-4f1e-b888-1b1608ddeb5c" />   ‎ ‎ㅤㅤ   ɕⴙყreᎥ𑂘𑂘ㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤㅤㅤ     - ,,  իⴘ𐐫ꭇ𐓠ㅤ⠀⠀ ⠀⠀ ⠀.ㅤㅤ⪩⪨
 </div>
 <div align="center">
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤㅤㅤㅤઇ 　　 ݂ ֹ　ㅤㅤㅤ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/12500261-d92a-48b1-b078-79bd121741ae" />
