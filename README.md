@@ -1,9 +1,12 @@
-⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ㅤㅤ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbig thanks toㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀my ata has disturbing image.. (maybe) just a warning!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎  ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀PC MODE RECOMMENDED!!!!!!!
+
+
 <div align="center">
  ⠀ ⠀ ⠀⠀<img width="1279" height="389" alt="Image" src="https://github.com/user-attachments/assets/32105f19-28bc-4c14-b947-4216ed64412d" />
 </div>
  ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀<br> <details><summary> ㅤㅤㅤPC MODE RECOMMENDED! click this if u want </summary>
+$\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀my ata has disturbing image.. (maybe) just a warning!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎  ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ㅤㅤ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀PC MODE RECOMMENDED!!!!!!!
+</details>⠀ ⠀⠀⠀ ⠀ 
 <div align="center">
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Varela+Round&size=15&duration=3000&pause=500&color=C6D3F4&center=true&width=435&lines=.+.+.+.+.+.+.+.+.+.+;Sleep%E3%85%A4+on;Sweet+%E3%85%A4little+%E3%85%A4child+%E3%85%A4day%E3%85%A4+is%E3%85%A4+young..+;Water%E3%85%A4is%E3%85%A4+freezing+%E3%85%A4%28don't+%E3%85%A4wake%29+;.+.+.+.+.+;Night%E3%85%A4+is%E3%85%A4+so%E3%85%A4+deep+%E3%85%A4and+%E3%85%A4slow..+;Close%E3%85%A4+your%E3%85%A4+eyes%E3%85%A4+dream%E3%85%A4+on;Dear+%E3%85%A4little+%E3%85%A4child%E3%85%A4+in%E3%85%A4+the+%E3%85%A4sky...+;Stars%E3%85%A4+are%E3%85%A4+still%E3%85%A4+fading+%E3%85%A4away;.+.+.+.+.+;Dove...+;You're%E3%85%A4+a+%E3%85%A4dove..+;Into+%E3%85%A4close...+;.+.+.+.+.+.+.+.+.+" alt="Typing SVG" /></a> 
 
@@ -23,10 +26,31 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤㅤㅤㅤઇ 　　 ݂ ֹ　ㅤㅤㅤ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/12500261-d92a-48b1-b078-79bd121741ae" />
 </div>⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤ
  <div align="enter">
-  <br> <details><summary>  ⠀ ⠀ ⠀ 𓍯𓂃⠀ㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/5881ccbd-a8c3-4536-87a7-20a4fca7a000" />⠀⠀ ⠀⠀ ⠀‎ ‎  . 𝙉OTESㅤㅤㅤ   ⠀⠀⠀ㅤ‎    ㅤ꒰ click ꒱ㅤ──────────</summary>  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ $\text{\color{#B5C3D7}—⠀ ⠀  ʏᴏᴜ ⠀ ⠀ can ᴛᴀᴋᴇ ⠀ ⠀ insᴘo (ᴘᴏɴɪᴇs) ⠀ ⠀ ʙᴜᴛ ᴘʟs ɴᴏᴛ ʜᴇᴀᴠʏ 𝗜𝗡𝗦𝗣}$ & ask first. ⠀ ⠀ also I'M VERY ⠀ ⠀ VERY BAD $\text{\color{#4F6ABA}Aᴛ ɢʀᴀᴍᴍᴀʀ⠀ ⠀ !!! ʜʜᴜᴜʜᴜᴜ    }$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ 𑣲 ⠀ ⠀ Im ⠀ ⠀ NOT ignoring you,⠀ ⠀  i was just afk most of the time.  ⠀  ᴀɴᴅ i ᴅᴏɴᴛ⠀ ⠀  taʟᴋ a loᴛ..⠀ ⠀  mosᴛʟʏ ɪʟʟ be quiᴇᴛ ⠀ ⠀ ᴀɴd cᴜᴅᴅʟɪɴg ᴡʜɪʟᴇ afk.⠀ ⠀  ᴄᴀᴜsᴇ im 𝘴𝘰𝘴𝘪𝘢𝘭⠀ ⠀  𝘢𝘸𝘬𝘸𝘢𝘳𝘥 ᴡɪᴛʜ⠀ ⠀  𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘪 𝘫𝘶𝘴𝘵 𝘮𝘦𝘵! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀⠀——ㅤʙᴇᴄᴀᴜsᴇ⠀ ⠀  im ᴍᴏsᴛʟʏ offtab or⠀ ⠀  aғk, so ᴡ𝟸ɪ is⠀ ⠀  recσɱɱendҽԃ...⠀ ⠀  i 𝗮𝗹𝘀𝗼 𝗯𝗹𝗼𝗰𝗸 ғʀᴇᴇʟʏ.‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤ
+  <br> <details><summary>  ⠀ ⠀ ⠀ 𓍯𓂃⠀ㅤㅤ<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/5881ccbd-a8c3-4536-87a7-20a4fca7a000" />⠀⠀ ⠀⠀ ⠀‎ ‎  . 𝙉OTESㅤㅤㅤ   ⠀⠀⠀ㅤ‎    ㅤ꒰ click ꒱ㅤ──────────</summary>  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ 
+   <div align="left">
+    —⠀ ⠀  ʏᴏᴜ ⠀ ⠀ can ᴛᴀᴋᴇ ⠀ ⠀ insᴘo (ᴘᴏɴɪᴇs) ⠀ ⠀ ʙᴜᴛ ᴘʟs ɴᴏᴛ ʜᴇᴀᴠʏ 𝗜𝗡𝗦𝗣 & ask first. ⠀ ⠀ also I'M VERY ⠀ ⠀ VERY BAD Aᴛ ɢʀᴀᴍᴍᴀʀ⠀ ⠀ !!! ʜʜᴜᴜʜᴜᴜ
+   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
+   <div align="left">
+    𑣲 ⠀ ⠀ Im ⠀ ⠀ NOT ignoring you,⠀ ⠀  i was just afk most of the time.  ⠀  ᴀɴᴅ i ᴅᴏɴᴛ⠀ ⠀  taʟᴋ a loᴛ..⠀ ⠀  mosᴛʟʏ ɪʟʟ be quiᴇᴛ ⠀ ⠀ ᴀɴd cᴜᴅᴅʟɪɴg ᴡʜɪʟᴇ afk.⠀ ⠀  ᴄᴀᴜsᴇ im 𝘴𝘰𝘴𝘪𝘢𝘭⠀ ⠀  𝘢𝘸𝘬𝘸𝘢𝘳𝘥 ᴡɪᴛʜ⠀ ⠀  𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘪 𝘫𝘶𝘴𝘵 𝘮𝘦𝘵!
+   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀
+   <div align="left">
+    ⠀——ㅤʙᴇᴄᴀᴜsᴇ⠀ ⠀  im ᴍᴏsᴛʟʏ offtab or⠀ ⠀  aғk, so ᴡ𝟸ɪ is⠀ ⠀  recσɱɱendҽԃ...⠀ ⠀  i 𝗮𝗹𝘀𝗼 𝗯𝗹𝗼𝗰𝗸 ғʀᴇᴇʟʏ.‎
+   </div>‎　 　 ‎ ‎　 　 ‎ ‎　 　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤ
 <div align="center">
  <img width="600" height="350" alt="Image" src="https://github.com/user-attachments/assets/0313c1b5-d699-4a6f-9d0f-8acf904a3b5f" />
-</div>ㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤ　 ‎ ‎　 　 ‎ ‎　 　  $\text{\color{#3E2F5B}ㅤ— ⠀ ⠀ 𝗬𝗘𝗦, ⠀ ⠀ i ԋαʋҼ like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵 he𝘩.... ㅤ ʜᴏɴᴇsᴛʟy}$ $\text{\color{#4F6ABA} i⠀ ⠀  don't}$ $\text{\color{#B5C3D7}really care if ᴜ'ʀᴇ ⠀ ⠀ a pro𝚜𝚑𝚒𝚙𝚙𝚎𝚛... 𝙖𝙨 𝙡𝙤𝙣𝙜 }$ $\text{\color{#3E2F5B} as you're⠀ ⠀  𝙣𝙤𝙩 the 𝙥𝙧𝙤𝙗𝙡𝙚𝙢𝙖𝙩𝙞𝙘 ⠀ ⠀ one. ʙᴜᴛ if you'rᴇ a⠀ ⠀  darkshippᴇr pls sᴛᴀʏ}$ $\text{\color{#4F6ABA} 𝙰𝚆𝙰𝚈 ⠀ ⠀ 𝙛𝙧𝙤𝙢 me. (read dni)}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀  ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀  𑣲⠀ ⠀  i 𝚖𝚒𝚐𝚑𝚝 be 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚⠀ ⠀  if you ᴜsᴇ "😂" if we're ɴᴏᴛ⠀ ⠀  ᴄʟᴏsᴇ 𝘦𝘯𝘰𝘶𝘨𝘩.. and 𝗮𝘄𝗸𝘄𝗮𝗿𝗱 ιϝ you ⠀ ⠀ υʂҽ "🗿"ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ— ⠀ ⠀ i'm so sorry⠀ ⠀  if you ᴡʜɪsᴘᴇʀᴇᴅ 𝗺𝗲 b𝔲t ⠀ ⠀ 𝗶 didn't repl𝘆... ⠀ ⠀ i get 𝘁𝗼𝗼 lat𝗲 𝗳or replies⠀ ⠀  sometimes and only see ⠀ ⠀ the messages when the ⠀ ⠀ sender 𝙜𝙤𝙚𝙨 𝗼𝗳𝗳𝗹𝗶𝗻𝗲, but ɪ ᴘʀᴏᴍɪsᴇ i 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 your interactions!!!!!!⠀ ⠀  𝘼𝙉𝘿 i ⠀ ⠀ make a 𝙡𝙤𝙩 of m𝙞𝙨𝙨-spelling𝙨ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ㅤ⠀ ⠀ ㅤㅤㅤㅤㅤ⠀ ⠀ ㅤ⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀ ㅤ   $\text{\color{#3E2F5B}𑣲  ⠀ ⠀ im 𝙛𝙤𝙧𝙜𝙚𝙩𝙛𝙪𝙩 or⠀ ⠀ g𝚎t 𝚍𝚒𝚜𝚝𝚛a𝚌𝚝𝚎𝚍 𝚎𝚊𝚜𝚒𝚕𝚢 𝙖𝙣𝙙 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 ⠀ ⠀ 𝙙𝙤𝙞𝙣𝙜 2-4 or mor𝙚 ᴛʜɪɴɢs at ᴏɴᴄᴇ, ⠀ ⠀ ɪғ im ᴀʟᴏɴᴇ}$ $\text{\color{#4F6ABA} anyone ⠀ ⠀ can sit near me/cuddle/hide behin𝙙 me, but i 𝙢𝙞𝙜𝙝𝙩}$ $\text{\color{#B5C3D7}⠀ ⠀ 𝕕𝕚𝕤𝕔𝕠𝕟𝕟𝕖𝕔𝕥}$ </details>
+</div>ㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤ　 ‎ ‎　 　 ‎ ‎　 　  
+   <div align="left">
+    $\text{\color{#3E2F5B}ㅤ— ⠀ ⠀ 𝗬𝗘𝗦, ⠀ ⠀ i ԋαʋҼ like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵 he𝘩.... ㅤ ʜᴏɴᴇsᴛʟy}$  i⠀ ⠀  don't really care if ᴜ'ʀᴇ ⠀ ⠀ a pro𝚜𝚑𝚒𝚙𝚙𝚎𝚛... 𝙖𝙨 𝙡𝙤𝙣𝙜  as you're⠀ ⠀  𝙣𝙤𝙩 the 𝙥𝙧𝙤𝙗𝙡𝙚𝙢𝙖𝙩𝙞𝙘 ⠀ ⠀ one. ʙᴜᴛ if you'rᴇ a⠀ ⠀  darkshippᴇr pls sᴛᴀʏ  𝙰𝚆𝙰𝚈 ⠀ ⠀ 𝙛𝙧𝙤𝙢 me. (read dni)
+   </div>ㅤㅤㅤㅤ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀
+   <div align="left"> 𑣲⠀ ⠀  i 𝚖𝚒𝚐𝚑𝚝 be 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚⠀ ⠀  if you ᴜsᴇ "😂" if we're ɴᴏᴛ⠀ ⠀  ᴄʟᴏsᴇ 𝘦𝘯𝘰𝘶𝘨𝘩.. and 𝗮𝘄𝗸𝘄𝗮𝗿𝗱 ιϝ you ⠀ ⠀ υʂҽ "🗿"
+   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+   <div align="left">
+    — ⠀ ⠀ i'm so sorry⠀ ⠀  if you ᴡʜɪsᴘᴇʀᴇᴅ 𝗺𝗲 b𝔲t ⠀ ⠀ 𝗶 didn't repl𝘆... ⠀ ⠀ i get 𝘁𝗼𝗼 lat𝗲 𝗳or replies⠀ ⠀  sometimes and only see ⠀ ⠀ the messages when the ⠀ ⠀ sender 𝙜𝙤𝙚𝙨 𝗼𝗳𝗳𝗹𝗶𝗻𝗲, but ɪ ᴘʀᴏᴍɪsᴇ i 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 your interactions!!!!!!⠀ ⠀  𝘼𝙉𝘿 i ⠀ ⠀ make a 𝙡𝙤𝙩 of m𝙞𝙨𝙨-spelling𝙨
+   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+   <div align="left">
+    𑣲  ⠀ ⠀ im 𝙛𝙤𝙧𝙜𝙚𝙩𝙛𝙪𝙩 or⠀ ⠀ g𝚎t 𝚍𝚒𝚜𝚝𝚛a𝚌𝚝𝚎𝚍 𝚎𝚊𝚜𝚒𝚕𝚢 𝙖𝙣𝙙 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 ⠀ ⠀ 𝙙𝙤𝙞𝙣𝙜 2-4 or mor𝙚 ᴛʜɪɴɢs at ᴏɴᴄᴇ, ⠀ ⠀ ɪғ im ᴀʟᴏɴᴇ  anyone ⠀ ⠀ can sit near me/cuddle/hide behin𝙙 me, but i 𝙢𝙞𝙜𝙝𝙩 ⠀ 𝕕𝕚𝕤𝕔𝕠𝕟𝕟𝕖𝕔𝕥
+   </div> 
+  </details>
  </div>
 
  ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ㅤ⠀ ⠀ ㅤ  ⠀ ㅤㅤㅤㅤㅤ⠀ ⠀ ㅤ⠀ ⠀ ㅤ ⠀ㅤㅤㅤㅤ⠀ ⠀ ㅤ⠀ ⠀ ㅤ  ⠀ ㅤㅤㅤㅤㅤ⠀ ⠀ ㅤ⠀ ⠀ ㅤ  ⠀ ⠀<div align="center">
