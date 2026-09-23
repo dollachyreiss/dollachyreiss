@@ -4,8 +4,14 @@
  ⠀ ⠀ ⠀⠀<img width="1279" height="389" alt="Image" src="https://github.com/user-attachments/assets/32105f19-28bc-4c14-b947-4216ed64412d" />
 </div>
  ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀<br> <details><summary> ㅤㅤㅤPC MODE RECOMMENDED! click this if u want </summary>
-$\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀my ata has disturbing image.. (maybe) just a warning!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎  ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ㅤㅤ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀PC MODE RECOMMENDED!!!!!!!
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+
+<br>
+
+<details><summary> ㅤㅤㅤPC MODE RECOMMENDED! click this if u want </summary> ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+
+$\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)<br>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀my ata has disturbing image.. (maybe) just a warning!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎  ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ‎ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ㅤㅤ ⠀ ⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀PC MODE RECOMMENDED!!!!!!!
 </details>⠀ ⠀⠀⠀ ⠀ 
 <div align="center">
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Varela+Round&size=15&duration=3000&pause=500&color=C6D3F4&center=true&width=435&lines=.+.+.+.+.+.+.+.+.+.+;Sleep%E3%85%A4+on;Sweet+%E3%85%A4little+%E3%85%A4child+%E3%85%A4day%E3%85%A4+is%E3%85%A4+young..+;Water%E3%85%A4is%E3%85%A4+freezing+%E3%85%A4%28don't+%E3%85%A4wake%29+;.+.+.+.+.+;Night%E3%85%A4+is%E3%85%A4+so%E3%85%A4+deep+%E3%85%A4and+%E3%85%A4slow..+;Close%E3%85%A4+your%E3%85%A4+eyes%E3%85%A4+dream%E3%85%A4+on;Dear+%E3%85%A4little+%E3%85%A4child%E3%85%A4+in%E3%85%A4+the+%E3%85%A4sky...+;Stars%E3%85%A4+are%E3%85%A4+still%E3%85%A4+fading+%E3%85%A4away;.+.+.+.+.+;Dove...+;You're%E3%85%A4+a+%E3%85%A4dove..+;Into+%E3%85%A4close...+;.+.+.+.+.+.+.+.+.+" alt="Typing SVG" /></a> 
