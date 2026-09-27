@@ -49,7 +49,8 @@
   
   <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 ‎ ‎　 　<img width="52" height="18" alt="Image" src="https://github.com/user-attachments/assets/57914987-31e8-4ee6-92dd-10af6e4bc051" /> ‎  　 ‎ 　 ‎ ‎　 　 ‎ ‎　 　 ㅤ꒰ INFP ꒱</summary>ㅤ⠀ 
 $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ
-   <sub><a href="https://github.com/pt-fashion" target="_blank">PT-FASHION</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a
+   <sub><a href="https://github.com/pt-fashion" target="_blank">PT-FASHION</a>
+   </small>
   </br>⠀
 </details>
 
