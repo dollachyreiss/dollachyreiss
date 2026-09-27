@@ -56,6 +56,7 @@
 
   <br>
   <details><summary>⠀  ㅤㅤ'ㅤㅤ⠀<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/956d271d-90e0-4e30-b873-c1db8412f815" /> ⠀ ⠀⠀ ..ㅤㅤㅤㅤ</summary>
+    
  $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)
  </br>⠀⠀ 
 </details>⠀ ⠀⠀
