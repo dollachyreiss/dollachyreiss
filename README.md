@@ -20,6 +20,7 @@
 <div align="center">
   <details>
   <summary> $${\color{#7594b2}<3}$$ </summary>
+   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀
    <div align="center">
     close : <a href="https://github.com/H0-NEYH" target="_blank">honey</a>
 $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/ChildofLight10" target="_blank">ndre</a>
@@ -31,6 +32,13 @@ $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/RE1GNEIVN" ta
     </div>
    <div align="center">
     Admire, HUHUHUH I WANT2BE THEIR FRIEND: <a href="https://github.com/fufuwin" target="_blank">fufuwin</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/NER0O9" target="_blank">NERO</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/purefatal" target="_blank">purefatal</a> 
+    
+  <div align="center">
+  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ 
+  </div>
+  <div align="center">
+   <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1825a3c0-36bb-4668-8ebd-a0d33e3a10e4" />
+  </div>
 </details>
   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
 
@@ -49,7 +57,7 @@ $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/RE1GNEIVN" ta
 
 <small>
 <div align="center">
-  𓂃⠀⠀ ‎ ๑ㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6c6e4d8b-4400-4153-af7f-63e72faabbd0" />  ‎ ‎ㅤㅤ   ɕⴙყreᎥ𑂘𑂘ㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤ - ,, իⴘ𐐫ꭇ𐓠ㅤ⠀⠀ ⠀꒱ ᩧ𓈒
+  𓂃⠀⠀ ‎ ๑ㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6c6e4d8b-4400-4153-af7f-63e72faabbd0" />  ‎ ‎ㅤㅤ   ᥴհყrᥱᎥ𑂘᥉ㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤ - ,, իⴘ𐐫ɾ𐓠ㅤ⠀⠀ ⠀꒱ ᩧ𓈒
 </div>⠀
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤ
@@ -57,7 +65,7 @@ $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/RE1GNEIVN" ta
   ㅤㅤ 
   <br>
   
-  <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 ‎ ‎　 　<img width="52" height="18" alt="Image" src="https://github.com/user-attachments/assets/57914987-31e8-4ee6-92dd-10af6e4bc051" /> ‎  　 ‎ 　 ‎ ‎　 　 ‎ ‎ㅤ꒰ INFP ꒱　 　<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/97a63219-6ce5-48f4-82c3-5e2329c1c421" /> </summary>ㅤ⠀ 
+  <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} 𝓣akeꪀ}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teeꪀ!}$$‎　 ‎ ‎　 　<img width="52" height="18" alt="Image" src="https://github.com/user-attachments/assets/57914987-31e8-4ee6-92dd-10af6e4bc051" /> ‎  　 ‎ 　 ‎ ‎　 　 ‎ ‎ㅤ꒰ INFP ꒱　 　<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/97a63219-6ce5-48f4-82c3-5e2329c1c421" /> </summary>ㅤ⠀ 
 $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ
    <sub><a href="https://github.com/pt-fashion" target="_blank">PT-FASHION</a>
    </small>
