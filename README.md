@@ -24,12 +24,18 @@
 <td align="center">
 
 <small>
-𓂃⠀⠀ ‎ ๑ㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6c6e4d8b-4400-4153-af7f-63e72faabbd0" />  ‎ ‎ㅤㅤ   ɕⴙყreᎥ𑂘𑂘ㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤ - ,, իⴘ𐐫ꭇ𐓠ㅤ⠀⠀ ⠀꒱ ᩧ𓈒⠀
+<div align="center">
+  𓂃⠀⠀ ‎ ๑ㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6c6e4d8b-4400-4153-af7f-63e72faabbd0" />  ‎ ‎ㅤㅤ   ɕⴙყreᎥ𑂘𑂘ㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤ - ,, իⴘ𐐫ꭇ𐓠ㅤ⠀⠀ ⠀꒱ ᩧ𓈒
+</div>⠀
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤ
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤઇ 　　 ݂ ֹ　
   ㅤㅤ <details>
   <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎FAB34D} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#DE3C00} ‎7teen!}$$‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
+
+
+</details>
+<sub><a href="https://rentry.co/minutetek" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://flowtives.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://pronouns.cc/@minutes" target="_blank">𝗉𝗋𝗇𝗌.𝖼𝖼</a>
 </small>
 
 </td>
