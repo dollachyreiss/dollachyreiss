@@ -3,7 +3,12 @@
 <html>
  <div align="center">
 
- MY ALT!ㅤㅤ [@PUPPYC4LEBS](https://github.com/PUPPYC4LEBS)ㅤㅤㅤ&ㅤㅤㅤㅤ[@SLEEPING4NGEL](https://github.com/SLEEPING4NGEL)ㅤㅤㅤㅤㅤㅤㅤ
+ MY ALT!ㅤㅤ 
+  <a href="Https://github.com/SLEEPING4NGEL">
+  <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/caf07dc5-5133-43e8-8ab1-58dbcae97a44" />
+</a>ㅤㅤㅤ&ㅤㅤㅤ<a href="Https://github.com/PUPPYC4LEBS">
+  <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/c7e389f6-1c83-4fa2-aae7-0ef006d9fc72" />
+</a>ㅤㅤㅤㅤㅤㅤㅤ
   </div>
   ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ 
 
