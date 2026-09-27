@@ -37,7 +37,8 @@ $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/RE1GNEIVN" ta
   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ 
   </div>
   <div align="center">
-   <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1825a3c0-36bb-4668-8ebd-a0d33e3a10e4" />
+   <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1825a3c0-36bb-4668-8ebd-a0d33e3a10e4" />⠀ ⠀ ⠀ ⠀ ⠀ ⠀꒰ ^. .^ ꒱⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/aa85389a-bd83-44e8-8db9-dca332e321e3" />
   </div>
 </details>
   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
