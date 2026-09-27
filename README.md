@@ -5,7 +5,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
 <div align="center">
   <details>
-  <summary> <3 </summary>
+  <summary> $${\color{#7594b2}<3}$$ </summary>
     ommf
 </details>
   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
@@ -31,7 +31,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤઇ 　　 ݂ ֹ　
   ㅤㅤ <details>
-  <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎7594b2} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#DE3C00} ‎7teen!}$$‎　 　 ‎  　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ NOTES ꒱　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
+  <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　 ‎  　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ NOTES ꒱　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
 ꒰ა︵ㅤㅤㅤㅤㅤㅤI'M $${\color{#9dbdce} AFK}$$ $${\color{#7594b2}MOST}$$ OF THE TIME so please w2i , I HAVE like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 $${\color{#AAAAAA}𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵}$$ he𝘩
 </details>
 <sub><a href="https://rentry.co/SLEEPINGDOLLIE" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://c4nibaydoll.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://guns.lol/fragile4ngelll" target="_blank">𝗉𝗋𝗇𝗌.𝖼𝖼</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$<a href="https://c4nibayl1sme.straw.page" target="_blank">straw</a>
