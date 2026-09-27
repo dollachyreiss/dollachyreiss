@@ -54,7 +54,7 @@ $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/p
 <br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ<details>
-  <summary>‎ ‎　　 ‎ ‎ ‎ SUM INFO!!! 　　 ‎ ‎ ‎</summary>ㅤ⠀ 
+  <summary>‎ ‎　　 ‎ ‎ ‎ SUM INFO!!! 　　/ㅤㅤㅤ𝗐ℎ𝖾𝗋𝖾 ?　﹕　im u𝘀uαʅly　　 aɾo𝘂𝗻d ˚ ݂ ֹ 　　 toy 　　 ѕтαѕн 　, ID SAFE　 ! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ‎ ‎ ‎</summary>ㅤ⠀ 
 <div align="left">
   ꒰ა︵ㅤㅤㅤㅤㅤㅤI'M $${\color{#9dbdce} AFK}$$ $${\color{#7594b2}MOST}$$ OF THE TIME so please w2i , I HAVE like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 $${\color{#AAAAAA}𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵}$$ he𝘩
 </div>
