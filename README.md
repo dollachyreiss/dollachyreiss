@@ -48,7 +48,7 @@
 <div align="center"> ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </div>
 
-<div align="left"> ꒰ა︵ㅤㅤㅤㅤㅤ i'm so sorry⠀ ⠀ if you ᴡʜɪsᴘᴇʀᴇᴅ 𝗺𝗲 b𝔲t ⠀ ⠀ 𝗶 didn't repl𝘆... ⠀ ⠀ i get 𝘁𝗼𝗼 lat𝗲 𝗳or replies⠀ ⠀ sometimes and only see ⠀ ⠀ the messages when the ⠀ ⠀ sender 𝙜𝙤𝙚𝙨 𝗼𝗳𝗳𝗹𝗶𝗻𝗲, but ɪ ᴘʀᴏᴍɪsᴇ i 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 your interactions!!!!!!⠀ ⠀ 𝘼𝙉𝘿 i ⠀ ⠀ make a 𝙡𝙤𝙩 of m𝙞𝙨𝙨-spelling𝙨
+<div align="left"> ꒰ა︵ㅤㅤㅤㅤㅤ i'm so sorry⠀ ⠀ if you ᴡʜɪsᴘᴇʀᴇᴅ 𝗺𝗲 b𝔲t ⠀ ⠀ 𝗶 didn't repl𝘆... ⠀ ⠀ i get 𝘁𝗼𝗼 lat𝗲 𝗳or replies⠀ ⠀ $${\color{#‎d5e7f0}sometimes}$$ and only see ⠀ ⠀ the messages when the ⠀ ⠀ sender 𝙜𝙤𝙚𝙨 $${\color{#7594b2}offline}$$‎, but ɪ ᴘʀᴏᴍɪsᴇ i 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 your interactions!!!!!!⠀ ⠀ 𝘼𝙉𝘿 i ⠀ ⠀ make a 𝙡𝙤𝙩 of$${\color{#‎d5e7f0}miss-spellings}$$
 </div>
 </details>
 
