@@ -47,7 +47,7 @@
   ㅤㅤ 
   <br>
   
-  <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 ‎ ‎　 　<img width="52" height="18" alt="Image" src="https://github.com/user-attachments/assets/57914987-31e8-4ee6-92dd-10af6e4bc051" /> ‎  　 ‎ 　 ‎ ‎　 　 ‎ ‎ㅤ꒰ INFP ꒱　 　<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/c7e389f6-1c83-4fa2-aae7-0ef006d9fc72" /> </summary>ㅤ⠀ 
+  <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 ‎ ‎　 　<img width="52" height="18" alt="Image" src="https://github.com/user-attachments/assets/57914987-31e8-4ee6-92dd-10af6e4bc051" /> ‎  　 ‎ 　 ‎ ‎　 　 ‎ ‎ㅤ꒰ INFP ꒱　 　<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/97a63219-6ce5-48f4-82c3-5e2329c1c421" /> </summary>ㅤ⠀ 
 $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ
    <sub><a href="https://github.com/pt-fashion" target="_blank">PT-FASHION</a>
    </small>
