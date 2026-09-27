@@ -18,7 +18,8 @@
 <small>
 𓂃⠀⠀ ‎ ๑ㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6c6e4d8b-4400-4153-af7f-63e72faabbd0" />  ‎ ‎ㅤㅤ   ɕⴙყreᎥ𑂘𑂘ㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤ - ,, իⴘ𐐫ꭇ𐓠ㅤ⠀⠀ ⠀꒱ ᩧ𓈒⠀
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤㅤㅤㅤઇ 　　 ݂ ֹ　
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤ
+  ㅤㅤㅤઇ 　　 ݂ ֹ　
   ㅤㅤ <details>
   <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎FAB34D} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#DE3C00} ‎7teen!}$$‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
 </small>
