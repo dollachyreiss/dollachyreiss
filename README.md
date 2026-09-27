@@ -68,7 +68,7 @@ $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ
 <br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ<details>
-  <summary>‎ ‎　　 ‎ ‎ ‎ SUM INFO!!! 　　/ㅤㅤㅤ𝗐ℎ𝖾𝗋𝖾 ?　﹕　im u𝘀uαʅly　　 aɾo𝘂𝗻d ˚ ݂ ֹ 　　 toy 　　 ѕтαѕн 　, ID SAFE　 ! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ‎ ‎ ‎</summary>ㅤ⠀ 
+  <summary>‎ ‎　　 ‎ ‎ ‎ SUM INFO!!! 　　/ㅤㅤㅤ𝗐ℎ𝖾𝗋𝖾 ?　﹕　im u𝘀uαʅly　　 aɾo𝘂𝗻d ˚ ݂ ֹ 　　 toy 　　 ѕтαѕн 　, ID SAFE　 ! ㅤㅤㅤㅤㅤㅤㅤ <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" />ㅤㅤㅤ ‎ ‎ ‎</summary>ㅤ⠀ 
 <div align="left">
   ꒰ა︵ㅤㅤㅤㅤㅤㅤI'M $${\color{#9dbdce} AFK}$$ $${\color{#7594b2}MOST}$$ OF THE TIME so please w2i , I HAVE like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 $${\color{#AAAAAA}𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵}$$ he𝘩
 </div>
@@ -89,7 +89,7 @@ $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ
 <div align="center"> ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </div>
 
-<div align="left"> ——⠀ㅤㅤㅤㅤ DNI IFㅤ YOU'RE UNDER 14! ㅤAND ABOVE 23+ UNLESS IKㅤ YOU IRL. ㅤㅤㅤi always open for c+h~ (DNI LIST ㅤON ㅤSTRAWPAGE) <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" />
+<div align="left"> ——⠀ㅤㅤㅤㅤ DNI IFㅤ YOU'RE UNDER 14! ㅤAND ABOVE 23+ UNLESS IKㅤ YOU IRL. ㅤㅤㅤi always open for c+h~ (DNI LIST ㅤON ㅤSTRAWPAGE)
 </div>
 
 </details>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ 
