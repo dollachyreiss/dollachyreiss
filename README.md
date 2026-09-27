@@ -47,7 +47,7 @@
   ㅤㅤ 
   <br>
   
-  <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　 ‎  　 ‎<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" /> 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ INFP ꒱</summary>ㅤ⠀ 
+  <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　<img width="52" height="18" alt="Image" src="https://github.com/user-attachments/assets/57914987-31e8-4ee6-92dd-10af6e4bc051" /> ‎  　 ‎ 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ INFP ꒱</summary>ㅤ⠀ 
 $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)
   </br>⠀
 </details>
@@ -87,7 +87,7 @@ $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/p
 <div align="center"> ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </div>
 
-<div align="left"> ——⠀ㅤㅤㅤㅤ DNI IFㅤ YOU'RE UNDER 14! ㅤAND ABOVE 23+ UNLESS IKㅤ YOU IRL. ㅤㅤㅤi always open for c+h~ (DNI LIST ㅤON ㅤSTRAWPAGE)
+<div align="left"> ——⠀ㅤㅤㅤㅤ DNI IFㅤ YOU'RE UNDER 14! ㅤAND ABOVE 23+ UNLESS IKㅤ YOU IRL. ㅤㅤㅤi always open for c+h~ (DNI LIST ㅤON ㅤSTRAWPAGE) <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" />
 </div>
 
 </details>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ 
