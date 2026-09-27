@@ -50,16 +50,14 @@
 
 <div align="left"> ꒰ა︵ㅤㅤㅤㅤㅤ i'm so sorry⠀ ⠀ if you ᴡʜɪsᴘᴇʀᴇᴅ 𝗺𝗲 b𝔲t ⠀ ⠀ 𝗶 didn't repl𝘆... ⠀ ⠀ i get 𝘁𝗼𝗼 lat𝗲 𝗳or replies⠀ ⠀ sometimes and only see ⠀ ⠀ the messages when the ⠀ ⠀ sender 𝙜𝙤𝙚𝙨 𝗼𝗳𝗳𝗹𝗶𝗻𝗲, but ɪ ᴘʀᴏᴍɪsᴇ i 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 your interactions!!!!!!⠀ ⠀ 𝘼𝙉𝘿 i ⠀ ⠀ make a 𝙡𝙤𝙩 of m𝙞𝙨𝙨-spelling𝙨
 </div>
-
-
 </details>
+
   <br>
   <details><summary>⠀  ㅤㅤ'ㅤㅤ⠀<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/956d271d-90e0-4e30-b873-c1db8412f815" /> ⠀ ⠀⠀ ..ㅤㅤㅤㅤ</summary>
     
  $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)
  </br>⠀⠀ 
 </details>⠀ ⠀⠀
- 
 <sub><a href="https://rentry.co/SLEEPINGDOLLIE" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://c4nibaydoll.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://guns.lol/fragile4ngelll" target="_blank">𝗉𝗋𝗇𝗌.𝖼𝖼</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$<a href="https://c4nibayl1sme.straw.page" target="_blank">straw</a>
 </small>
 
