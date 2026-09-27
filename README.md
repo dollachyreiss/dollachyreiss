@@ -1,16 +1,27 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**dollachyreiss/dollachyreiss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<table width="65%">
+<tr>
 
-Here are some ideas to get you started:
+<td align="center" width="35%">
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/ad2554f3-891f-4476-bb69-89318e52b457" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+</td>
+
+<td align="center" width="65%">
+
+<small>
+𓂃⠀⠀ ‎ ๑ㅤImage  ‎ ‎ㅤㅤ   ɕⴙყreᎥ𑂘𑂘ㅤㅤㅤ︵ㅤㅤ ₒᵣㅤㅤㅤㅤ - ,, իⴘ𐐫ꭇ𐓠ㅤ⠀⠀ ⠀꒱ ᩧ𓈒⠀ ⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤㅤㅤㅤઇ 　　 ݂ ֹ　
+  ㅤㅤ <details>
+  <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎FAB34D} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#DE3C00} ‎7teen!}$$‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
+</small>
+
+</td>
+
+</tr>
+</table>
+
+</div>
+
+<br>
