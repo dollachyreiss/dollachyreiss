@@ -54,7 +54,8 @@
 
 </details>
 
- ⠀  ⠀<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/956d271d-90e0-4e30-b873-c1db8412f815" /> ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀
+ ⠀  ⠀<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/956d271d-90e0-4e30-b873-c1db8412f815" /> ⠀ ⠀⠀ <br> $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)
+ </br>⠀⠀ ⠀ ⠀⠀
  
 <sub><a href="https://rentry.co/SLEEPINGDOLLIE" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://c4nibaydoll.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://guns.lol/fragile4ngelll" target="_blank">𝗉𝗋𝗇𝗌.𝖼𝖼</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$<a href="https://c4nibayl1sme.straw.page" target="_blank">straw</a>
 </small>
