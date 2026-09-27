@@ -20,7 +20,17 @@
 <div align="center">
   <details>
   <summary> $${\color{#7594b2}<3}$$ </summary>
-    ommf
+   <div align="center">
+    close : <a href="https://github.com/H0-NEYH" target="_blank">honey</a>
+$\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/ChildofLight10" target="_blank">ndre</a>
+$\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/netnetzach" target="_blank">yuki</a>
+$\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/RE1GNEIVN" target="_blank">my-love</a>
+   </div>
+    <div align="center">
+     Moots : <a href="https://github.com/LostInMyDreams" target="_blank">sena</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/HAMANICETRIP" target="_blank">clova</a> . UH IM LAZY 
+    </div>
+   <div align="center">
+    Admire, HUHUHUH I WANT2BE THEIR FRIEND: <a href="https://github.com/fufuwin" target="_blank">fufuwin</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/NER0O9" target="_blank">NERO</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/purefatal" target="_blank">purefatal</a> 
 </details>
   </div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ 
 
