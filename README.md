@@ -31,7 +31,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤઇ 　　 ݂ ֹ　
   ㅤㅤ <details>
-  <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　 ‎  　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ NOTES ꒱　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
+  <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　 ‎  　 ‎<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" /> 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ NOTES ꒱　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
 ꒰ა︵ㅤㅤㅤㅤㅤㅤI'M $${\color{#9dbdce} AFK}$$ $${\color{#7594b2}MOST}$$ OF THE TIME so please w2i , I HAVE like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 $${\color{#AAAAAA}𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵}$$ he𝘩
 
 <div align="center"> ⠀- , ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ 　_ 　❜ 　( 　 ࣪࣪
