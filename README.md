@@ -32,8 +32,29 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀ ⠀⠀.ㅤㅤ⪩⪨.ㅤㅤㅤ'ㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤઇ 　　 ݂ ֹ　
-  ㅤㅤ <details>
-  <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　 ‎  　 ‎<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" /> 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ NOTES ꒱</summary>ㅤ⠀ 
+  ㅤㅤ 
+  <br>
+  
+  <details><summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　 ‎  　 ‎<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" /> 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ INFP ꒱</summary>ㅤ⠀ 
+$\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)
+  </br>⠀
+</details>
+
+
+<sub><a href="https://rentry.co/SLEEPINGDOLLIE" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://c4nibaydoll.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://guns.lol/fragile4ngelll" target="_blank">𝗉𝗋𝗇𝗌.𝖼𝖼</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$<a href="https://c4nibayl1sme.straw.page" target="_blank">straw</a>
+</small>
+
+</td>
+
+</tr>
+</table>
+
+</div>
+
+<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ<details>
+  <summary>‎ ‎　　 ‎ ‎ ‎ SUM INFO!!! 　　 ‎ ‎ ‎</summary>ㅤ⠀ 
 <div align="left">
   ꒰ა︵ㅤㅤㅤㅤㅤㅤI'M $${\color{#9dbdce} AFK}$$ $${\color{#7594b2}MOST}$$ OF THE TIME so please w2i , I HAVE like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 $${\color{#AAAAAA}𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵}$$ he𝘩
 </div>
@@ -54,23 +75,4 @@
 <div align="left"> ——⠀ㅤㅤㅤㅤ DNI IF YOU'RE UNDER 14! AND ABOVE 23+ UNLESS IK YOU IRL. i always open for c+h~
 </div>
 
-</details>
-
-  <br>
-  <details><summary>⠀  ㅤㅤ'ㅤㅤ⠀<img width="19" height="19" alt="Image" src="https://github.com/user-attachments/assets/956d271d-90e0-4e30-b873-c1db8412f815" /> ⠀ ⠀⠀ ..ㅤㅤㅤㅤ</summary>
-    
- $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/pt-fashion)
- </br>⠀⠀ 
-</details>⠀ ⠀⠀
-<sub><a href="https://rentry.co/SLEEPINGDOLLIE" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://c4nibaydoll.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://guns.lol/fragile4ngelll" target="_blank">𝗉𝗋𝗇𝗌.𝖼𝖼</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$<a href="https://c4nibayl1sme.straw.page" target="_blank">straw</a>
-</small>
-
-</td>
-
-</tr>
-</table>
-
-</div>
-
-<br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ 
+</details>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ 
