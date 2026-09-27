@@ -79,7 +79,10 @@ $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ[@pt-fashion](https://github.com/p
 <div align="left"> ꒰ა︵ㅤㅤㅤㅤㅤ i'm so sorry⠀ ⠀ if you ᴡʜɪsᴘᴇʀᴇᴅ 𝗺𝗲 b𝔲t ⠀ ⠀ 𝗶 didn't repl𝘆... ⠀ ⠀ i get 𝘁𝗼𝗼 lat𝗲 𝗳or replies⠀ ⠀ $${\color{#‎AAAAAA}sometimes}$$ and only see ⠀ ⠀ the messages when the ⠀ ⠀ sender 𝙜𝙤𝙚𝙨 $${\color{#7594b2}offline}$$‎, but ɪ ᴘʀᴏᴍɪsᴇ i 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 your interactions!!!!!!⠀ ⠀ 𝘼𝙉𝘿 i ⠀ ⠀ make a 𝙡𝙤𝙩 of $${\color{#‎9dbdce}miss-spellings}$$
 </div>
 
-<div align="left"> ——⠀ㅤㅤㅤㅤ DNI IF YOU'RE UNDER 14! AND ABOVE 23+ UNLESS IK YOU IRL. i always open for c+h~
+<div align="center"> ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+</div>
+
+<div align="left"> ——⠀ㅤㅤㅤㅤ DNI IFㅤ YOU'RE UNDER 14! ㅤAND ABOVE 23+ UNLESS IKㅤ YOU IRL. ㅤㅤㅤi always open for c+h~ (DNI LIST ㅤON ㅤSTRAWPAGE)
 </div>
 
 </details>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀ 
