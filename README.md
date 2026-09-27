@@ -34,11 +34,17 @@
   <summary>‎ ‎　　 ‎ ‎ ‎ $${\color{#‎d5e7f0} Taken}$$　 ‎ ‎　.　 ‎ 　 $${\color{#7594b2} ‎7teen!}$$‎　 　 ‎  　 ‎<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/fa6c521c-0bb9-4919-be60-41e8d343fd4c" /> 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 ㅤ꒰ NOTES ꒱　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　 ‎ ‎　 　  </summary>ㅤ⠀ 
 ꒰ა︵ㅤㅤㅤㅤㅤㅤI'M $${\color{#9dbdce} AFK}$$ $${\color{#7594b2}MOST}$$ OF THE TIME so please w2i , I HAVE like 300 𝘴𝘵𝘺𝘭𝘦𝘴 𝘪𝘮 ⠀ ⠀ 𝘷𝘦𝘳𝘺 $${\color{#AAAAAA}𝘪𝘯𝘤𝘰𝘯𝘴𝘪𝘴𝘵𝘦𝘯𝘵}$$ he𝘩
 
-<div align="center"> ⠀- , ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ 　_ 　❜ 　( 　 ࣪࣪
+<div align="center"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </div>
 
 
-<div align="center"> ꒰ა︵ㅤㅤㅤㅤㅤ i'm social awkward w/ new people, i 𝚖𝚒𝚐𝚑𝚝 be 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚⠀  if you ᴜsᴇ "😂" if we're ɴᴏᴛ⠀ ᴄʟᴏsᴇ 𝘦𝘯𝘰𝘶𝘨𝘩..
+<div align="center"> ——⠀ㅤㅤㅤㅤ i'm social awkward w/ new people, i 𝚖𝚒𝚐𝚑𝚝 be 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚⠀  if you ᴜsᴇ "😂" if we're ɴᴏᴛ⠀ $${\color{#AAAAAA}close}$$ 𝘦𝘯𝘰𝘶𝘨𝘩..
+</div>
+
+<div align="center"> ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+</div>
+
+<div align="center"> ꒰ა︵ㅤㅤㅤㅤㅤ i'm so sorry⠀ ⠀ if you ᴡʜɪsᴘᴇʀᴇᴅ 𝗺𝗲 b𝔲t ⠀ ⠀ 𝗶 didn't repl𝘆... ⠀ ⠀ i get 𝘁𝗼𝗼 lat𝗲 𝗳or replies⠀ ⠀ sometimes and only see ⠀ ⠀ the messages when the ⠀ ⠀ sender 𝙜𝙤𝙚𝙨 𝗼𝗳𝗳𝗹𝗶𝗻𝗲, but ɪ ᴘʀᴏᴍɪsᴇ i 𝙖𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙚 your interactions!!!!!!⠀ ⠀ 𝘼𝙉𝘿 i ⠀ ⠀ make a 𝙡𝙤𝙩 of m𝙞𝙨𝙨-spelling𝙨
 </div>
 
 
