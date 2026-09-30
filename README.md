@@ -76,7 +76,7 @@ $\text{\color{#4F6ABA}big thanks to}$ㅤㅤㅤ
 </details>
 
 
-<sub><a href="https://rentry.co/SLEEPINGDOLLIE" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://c4nibaydoll.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://guns.lol/fragile4ngelll" target="_blank">guns.lol</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$<a href="https://plkadotbwun.straw.page" target="_blank">straw</a>
+<sub><a href="https://rentry.co/SLEEPINGDOLLIE" target="_blank">𝗋𝖾𝗇𝗍𝗋𝗒</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://c4nibaydoll.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$ <a href="https://guns.lol/fragile4ngelll" target="_blank">guns.lol</a> $\small\color{#000000}{\textsf{ㅤㅤㅤ}}$<a href="https://plkadotbuwn.straw.page" target="_blank">straw</a>
 </small>
 
 </td>
