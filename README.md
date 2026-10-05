@@ -30,7 +30,7 @@ $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/netnetzach" t
 $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/RE1GNEIVN" target="_blank">my-love</a>
    </div>
     <div align="center">
-     Moots : <a href="https://github.com/LostInMyDreams" target="_blank">sena</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/HAMANICETRIP" target="_blank">clova</a> . UH IM LAZY 
+     Moots : <a href="https://github.com/LostInMyDreams" target="_blank">sena</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/HAMANICETRIP" target="_blank">clova</a>$\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/Yaoyao-Chenx" target="_blank">nisaw</a>
     </div>
    <div align="center">
     Admire, HUHUHUH I WANT2BE THEIR FRIEND: <a href="https://github.com/fufuwin" target="_blank">fufuwin</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/NER0O9" target="_blank">NERO</a> $\small\color{#875556}{\textsf{ . }}$  <a href="https://github.com/purefatal" target="_blank">purefatal</a> 
